@@ -13,7 +13,6 @@ valm
 
 
 
-
 thik
 hak
 sarhj
