@@ -1,6 +1,6 @@
 # base50 dm
 y
-yt
+yt11
 valm
 thik
 hak
