@@ -2,3 +2,4 @@
 y
 yt
 valm
+thik
