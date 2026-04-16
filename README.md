@@ -8,12 +8,6 @@ valm
 
 
 
-
-
-
-
-
-
 thik
 hak
 sarhj
